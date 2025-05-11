@@ -9,7 +9,7 @@
 
 - 🤝 I’m looking for help with **Coding**
 
-- 📫 How to reach me **aanchalmultiservices2@gmail.com**
+- 📫 How to reach me **jajooaanchal0@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
